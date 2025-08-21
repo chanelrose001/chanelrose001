@@ -2,7 +2,7 @@
 <!--123123
 **cha12nelrose001/chanelrose001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you aXdoamZreWU=started:
+Here are some ideas to get you amNoZHN3cHo=aXdoamZreWU=started:
 bnJpZ21qcHo=Y2RqdmxmcHc=
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
