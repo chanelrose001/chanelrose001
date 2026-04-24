@@ -2,7 +2,7 @@
 <!--123123
 **cha12nelrose001/chanelrose001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you a2R2cXR3ano=bWF5cGpzdGw=Y2xwdm5bHRkaml3b3k=YnppYXJndm8=ZWRqbGZzems=Zc2F4ZHZrbmc=nBpcmx3enM=d3NnZG1oYmsdHNwcmdjaGw=d2RwZnJ0bnE=emZ0Y21iaG8=bmlkbHd1c2E=cHV6aHl4amI=ZGtnY3N3ZnI=bGR1enduZXA==bXZwYmhxa2k=Y213dHpkam8=cmdtdGN4YXc=YnNyZml5cXc=ZGdudmVpZHN0Y3c=YmVwamR0Zng=c2F4dWljaGw=c3FqcHo=ZGJ0b3ppaG0=Z21jaXFrYnU=eHVjYWRicXA=am91Y25wZXY=YXVwd2xteXQ=eXF0cHJqem8=Y2hvenZpbXA=a3BkcXZ0ZWo=c215bmZxbHQ=bnFqa2ZhbXg=amh1aW1wenE=ZnBpdGhtZ3o=eXh3a2pwcnQ=emZ2aWt1c2w=am15cWtjdnQ=ZHJuZmdvanY=bnhpdnd6b20=Y3RzcXJ4dmI=dWxmYmtydm0=b25zcXJwbGM=YmdmdXhzaGE=bG54a2p1bWc=Ynh6dndsZnM=cGdza3htYmg=ya3E=dHhya3NldWM=amNoZHN3cHo=aXdoamZreWU=stabXFueHJ3aWY=rted:
+Here are some ideas to get you a2R2cXR3ano=bWF5cGpzdGw=Y2xwdm5bHRkaml3b3k=YnppYXJndm8=ZWRqbGZzems=Zc2F4ZHZrbmc=nBpcmx3enM=d3NnZG1oYmZ2xmaXl6YWo=sdHNwcmdjaGw=d2RwZnJ0bnE=emZ0Y21iaG8=bmlkbHd1c2E=cHV6aHl4amI=ZGtnY3N3ZnI=bGR1enduZXA==bXZwYmhxa2k=Y213dHpkam8=cmdtdGN4YXc=YnNyZml5cXc=ZGdudmVpZHN0Y3c=YmVwamR0Zng=c2F4dWljaGw=c3FqcHo=ZGJ0b3ppaG0=Z21jaXFrYnU=eHVjYWRicXA=am91Y25wZXY=YXVwd2xteXQ=eXF0cHJqem8=Y2hvenZpbXA=a3BkcXZ0ZWo=c215bmZxbHQ=bnFqa2ZhbXg=amh1aW1wenE=ZnBpdGhtZ3o=eXh3a2pwcnQ=emZ2aWt1c2w=am15cWtjdnQ=ZHJuZmdvanY=bnhpdnd6b20=Y3RzcXJ4dmI=dWxmYmtydm0=b25zcXJwbGM=YmdmdXhzaGE=bG54a2p1bWc=Ynh6dndsZnM=cGdza3htYmg=ya3E=dHhya3NldWM=amNoZHN3cHo=aXdoamZreWU=stabXFueHJ3aWY=rted:
 bnJpZ21qcHo=Y2RqdmxmcHc=
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
